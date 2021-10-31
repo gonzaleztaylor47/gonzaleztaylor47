@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gonzaleztaylor47
+- 👋 Hi, I’m Taylor Gonzalez 
 - 👀 I’m interested in ... Learning about new things & spending time with family ! And I love to take Pictures!
 - 🌱 I’m currently learning ... How to get back on my feet and put myself back together and back to the old me.
 - 💞️ I’m looking to collaborate on ... anything!!
